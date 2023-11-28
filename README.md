@@ -1,7 +1,5 @@
 # FREE INSTAGRAM FOLLOWERS
 
-##
-
 ### FREE INSTAGRAM FOLLOWERS INDONESIA
 
 This is a script to increase Instagram followers.  You can only fill in ±10 each time you request from the Indonesian website.
